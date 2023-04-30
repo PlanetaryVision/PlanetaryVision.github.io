@@ -5,6 +5,15 @@ your temporary home
 
 https://www.newgrounds.com/portal/view/849352
 
+# LINKS
+
+https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA
+
+https://www.youtube.com/channel/UCdJREfEoXFABKWxv57Y-MBA
+
+https://www.youtube.com/channel/UCVzpnXOYzVWJwPOg-CXQYuA
+
+
 # GALLERY
 
 ![download (3)](https://user-images.githubusercontent.com/111039846/235381743-ad5694ed-fed1-45c8-9d5f-c6d1965fccb1.gif)
@@ -14,6 +23,4 @@ https://www.newgrounds.com/portal/view/849352
 ![download (2)](https://user-images.githubusercontent.com/111039846/235381760-60974ae1-97c2-4451-8830-985993ad10c6.gif)
 
 ![download (1)](https://user-images.githubusercontent.com/111039846/235381762-51940659-8676-4c84-b057-03093d6ac264.gif)
-
-![4x](https://user-images.githubusercontent.com/111039846/235381769-5dd61555-fcd2-48f5-92b3-a53f6b8b9c0d.gif)
 
