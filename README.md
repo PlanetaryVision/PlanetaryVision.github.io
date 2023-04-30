@@ -1,5 +1,5 @@
 # MCPenis/5meomc
-your new home
+your temporary home
 
 ![download (3)](https://user-images.githubusercontent.com/111039846/235381743-ad5694ed-fed1-45c8-9d5f-c6d1965fccb1.gif)
 
