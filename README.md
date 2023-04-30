@@ -3,7 +3,7 @@ your temporary home
 
 # GAMES
 
-https://www.newgrounds.com/portal/view/849352
+✰✰ 1.97 STARS ON NEWGROUNDS - https://www.newgrounds.com/portal/view/849352
 
 # LINKS
 
