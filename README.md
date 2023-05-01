@@ -11,17 +11,17 @@
 
 # 🌐LINKS
 
-**SPOTIFY** - https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA
+🎵**SPOTIFY** - https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA
 
-**MC PENIS YT** - https://www.youtube.com/channel/UCdJREfEoXFABKWxv57Y-MBA
+📺**MC PENIS YT** - https://www.youtube.com/channel/UCdJREfEoXFABKWxv57Y-MBA
 
-**SCREAMTARD YT** - https://www.youtube.com/channel/UCVzpnXOYzVWJwPOg-CXQYuA
+📺**SCREAMTARD YT** - https://www.youtube.com/channel/UCVzpnXOYzVWJwPOg-CXQYuA
 
-**INSTAGRAM** - https://www.instagram.com/5meomc/
+📷**INSTAGRAM** - https://www.instagram.com/5meomc/
 
-**SOUNDCLOUD** - https://soundcloud.com/mcpeni2
+☁**SOUNDCLOUD** - https://soundcloud.com/mcpeni2
 
-**TWITTER** - https://twitter.com/Screamtard
+🐥**TWITTER** - https://twitter.com/Screamtard
 
 
 # 🎨GALLERY
