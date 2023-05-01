@@ -1,5 +1,5 @@
 # 🌃MCPenis/5meomc
-**your new home 🏡**
+**🏡 your new home 🏡**
 
 # 🏪MERCH
 
