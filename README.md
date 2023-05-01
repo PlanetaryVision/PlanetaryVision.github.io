@@ -3,7 +3,7 @@
 
 # MERCH
 
-https://5meomc.printify.me/products
+**GO HERE** - https://5meomc.printify.me/products
 
 # GAMES
 
