@@ -1,5 +1,5 @@
 # MCPenis/5meomc
-**temporary homepage**
+**your new home**
 
 # MERCH
 
