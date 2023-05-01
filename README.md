@@ -11,11 +11,13 @@ https://5meomc.printify.me/products
 
 # LINKS
 
-https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA
+**SPOTIFY** https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA
 
-https://www.youtube.com/channel/UCdJREfEoXFABKWxv57Y-MBA
+**MC PENIS YT** https://www.youtube.com/channel/UCdJREfEoXFABKWxv57Y-MBA
 
-https://www.youtube.com/channel/UCVzpnXOYzVWJwPOg-CXQYuA
+**SCREAMTARD YT** https://www.youtube.com/channel/UCVzpnXOYzVWJwPOg-CXQYuA
+
+**INSTAGRAM** https://www.instagram.com/5meomc/
 
 
 # GALLERY
