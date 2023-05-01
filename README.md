@@ -1,7 +1,7 @@
 # 🌃MCPenis/5meomc
 **your new home 🏡**
 
-# 👚MERCH
+# 🏪MERCH
 
 🛒**GO HERE** - https://5meomc.printify.me/products
 
