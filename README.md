@@ -1,15 +1,15 @@
 # MCPenis/5meomc
 **your new home**
 
-# MERCH
+# 👚MERCH
 
 **GO HERE** - https://5meomc.printify.me/products
 
-# GAMES
+# 🎮GAMES
 
 **DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - https://www.newgrounds.com/portal/view/849352
 
-# LINKS
+# 🌐LINKS
 
 **SPOTIFY** - https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA
 
@@ -24,7 +24,7 @@
 **TWITTER** - https://twitter.com/Screamtard
 
 
-# GALLERY
+# 🎨GALLERY
 
 ![download (3)](https://user-images.githubusercontent.com/111039846/235381743-ad5694ed-fed1-45c8-9d5f-c6d1965fccb1.gif)
 
