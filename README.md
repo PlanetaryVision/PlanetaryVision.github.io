@@ -19,6 +19,10 @@
 
 **INSTAGRAM** - https://www.instagram.com/5meomc/
 
+**SOUNDCLOUD** - https://soundcloud.com/mcpeni2
+
+**TWITTER** - https://twitter.com/Screamtard
+
 
 # GALLERY
 
