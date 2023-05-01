@@ -1,6 +1,10 @@
 # MCPenis/5meomc
 **temporary homepage**
 
+# MERCH
+
+https://5meomc.printify.me/products
+
 # GAMES
 
 **DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - https://www.newgrounds.com/portal/view/849352
