@@ -1,5 +1,5 @@
 # MCPenis/5meomc
-**your temporary home**
+**temporary homepage**
 
 # GAMES
 
