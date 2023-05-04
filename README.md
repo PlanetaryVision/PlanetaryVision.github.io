@@ -3,11 +3,11 @@
 
 # 🏪MERCH
 
-🛒**GO HERE** - https://5meomc.printify.me/products
+🛒**GO HERE** - [CLICK HERE](https://5meomc.printify.me/products) 
 
 # 🎮GAMES
 
-🕹**DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - https://www.newgrounds.com/portal/view/849352
+🕹**DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - [CLICK HERE]( https://www.newgrounds.com/portal/view/849352)
 
 # 🌐LINKS
 
