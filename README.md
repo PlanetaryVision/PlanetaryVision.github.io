@@ -23,7 +23,7 @@
 
 🐥**TWITTER** - https://twitter.com/Screamtard
 
-🐥 [**TWITTER](https://twitter.com/Screamtard)
+🐥**TWITTER** - [CLICK HERE](https://twitter.com/Screamtard)
 
 
 # 🎨GALLERY
