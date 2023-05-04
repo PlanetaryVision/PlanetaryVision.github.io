@@ -34,5 +34,6 @@
 
 ![download (1)](https://user-images.githubusercontent.com/111039846/235381762-51940659-8676-4c84-b057-03093d6ac264.gif)
 
+![matrix-numbers (1)](https://user-images.githubusercontent.com/111039846/236143407-a619c926-c409-4dd7-a783-fc279d0b2fe1.gif)
 
 
