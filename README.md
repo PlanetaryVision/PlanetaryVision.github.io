@@ -21,7 +21,7 @@
 
 ☁**SOUNDCLOUD** - https://soundcloud.com/mcpeni2
 
-🐥**TWITTER** - https://twitter.com/Screamtard
+🐥[**TWITTER**] - (https://twitter.com/Screamtard)
 
 
 # 🎨GALLERY
