@@ -23,7 +23,7 @@
 
 🐥**TWITTER** - https://twitter.com/Screamtard
 
-⚠ [test](https://open.spotify.com/track/563v9RYSRNhrfwaIefFE2i?si=ecd863787bd649a4)
+🐥 [**TWITTER](https://twitter.com/Screamtard)
 
 
 # 🎨GALLERY
