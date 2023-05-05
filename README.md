@@ -5,6 +5,10 @@
 
 🛒**GO HERE** - [CLICK HERE](https://5meomc.printify.me/products) 
 
+# 🎮GAMES
+
+🕹**DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - [CLICK HERE]( https://www.newgrounds.com/portal/view/849352)
+
 # 🌐LINKS
 
 🎵**SPOTIFY** - [CLICK HERE](https://open.spotify.com/artist/5lDAjxt5f3kf3HhuTbmaja?si=pgiW6MfURsOiYL4HiiKuVA)
@@ -18,10 +22,6 @@
 ☁**SOUNDCLOUD** - [CLICK HERE](https://soundcloud.com/mcpeni2)
 
 🐥**TWITTER** - [CLICK HERE](https://twitter.com/Screamtard)
-
-# 🎮GAMES
-
-🕹**DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - [CLICK HERE]( https://www.newgrounds.com/portal/view/849352)
 
 # 🎨GALLERY
 
