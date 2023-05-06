@@ -1,6 +1,6 @@
 # 🌃MCPenis/5meomc
 **🏡 your new home 🏡**
-
+![ezgif-3-070ea121c5](https://user-images.githubusercontent.com/111039846/236591040-ff4153a0-c068-4ac8-9349-de39bc90b7ff.gif)
 # 🏪MERCH
 
 🛒**GO HERE** - [CLICK HERE](https://5meomc.printify.me/products) 
