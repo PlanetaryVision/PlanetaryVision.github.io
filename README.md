@@ -33,4 +33,3 @@
 
 ![download (1)](https://user-images.githubusercontent.com/111039846/235381762-51940659-8676-4c84-b057-03093d6ac264.gif)
 
-![download (1)](https://im.ezgif.com/tmp/ezgif-1-944a993153.gif)
