@@ -3,8 +3,6 @@ Loading…
 50%
 █████████.......]
 
-**🏡 your new home 🏡**
-
 ![ezgif-4-ad5ce1275d](https://user-images.githubusercontent.com/111039846/236644304-4573169a-2a87-48b6-9468-7e993778390e.gif)
 # 🏪MERCH
 
@@ -37,3 +35,5 @@ Loading…
 ![download (2)](https://user-images.githubusercontent.com/111039846/235381760-60974ae1-97c2-4451-8830-985993ad10c6.gif)
 
 ![download (1)](https://user-images.githubusercontent.com/111039846/235381762-51940659-8676-4c84-b057-03093d6ac264.gif)
+
+**🏡 your new home 🏡**
