@@ -4,7 +4,7 @@ Loading…
 █████████.......]
 
 
-[CLICK HERE](https://www.instagram.com/p/Cr9pzT4sISO/)
+[FINAL TEASER HERE](https://www.instagram.com/p/Cr9pzT4sISO/)
 
 # 🏪MERCH
 
