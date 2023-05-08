@@ -6,7 +6,6 @@ Loading…
 
 [CLICK HERE](https://www.instagram.com/p/Cr9pzT4sISO/)
 
-
 # 🏪MERCH
 
 🛒**GO HERE** - [CLICK HERE]((https://5meomc.printify.me/products) 
