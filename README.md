@@ -4,7 +4,7 @@ Loading…
 █████████.......]
 
 
-[FINAL TEASER HERE](https://www.instagram.com/p/Cr9pzT4sISO/)
+[NEW ALBUM OUT NOW - CLICK HERE](https://open.spotify.com/album/597NOjf9W8429mIoTpQUD5?si=8CHWrJ0NTKu1759to1Jagg)
 
 # 🏪MERCH
 
