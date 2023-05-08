@@ -3,7 +3,11 @@ Loading…
 100%
 █████████.......]
 
-![ezgif-4-ad5ce1275d](https://user-images.githubusercontent.com/111039846/236644304-4573169a-2a87-48b6-9468-7e993778390e.gif)
+
+
+https://user-images.githubusercontent.com/111039846/236713478-2cbee4d4-1491-4686-b38a-eafc18904372.mp4
+
+
 # 🏪MERCH
 
 🛒**GO HERE** - [CLICK HERE](https://5meomc.printify.me/products) 
