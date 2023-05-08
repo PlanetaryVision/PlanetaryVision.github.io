@@ -4,13 +4,12 @@ Loading…
 █████████.......]
 
 
-
-https://user-images.githubusercontent.com/111039846/236713478-2cbee4d4-1491-4686-b38a-eafc18904372.mp4
+[CLICK HERE](https://www.instagram.com/p/Cr9pzT4sISO/)
 
 
 # 🏪MERCH
 
-🛒**GO HERE** - [CLICK HERE](https://5meomc.printify.me/products) 
+🛒**GO HERE** - [CLICK HERE]((https://5meomc.printify.me/products) 
 
 # 🎮GAMES
 
