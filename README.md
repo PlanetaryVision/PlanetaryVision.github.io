@@ -8,7 +8,7 @@
 
 # 🎮GAMES
 
-🕹**DRIPPY** ✰✰ **1.97 STARS ON NEWGROUNDS** - [CLICK HERE]( https://www.newgrounds.com/portal/view/849352)
+🕹**DRIPPY** ✰✰✰ **2.01 STARS ON NEWGROUNDS** - [CLICK HERE]( https://www.newgrounds.com/portal/view/849352)
 
 # 🌐LINKS
 
