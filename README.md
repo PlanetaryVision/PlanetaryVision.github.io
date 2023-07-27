@@ -1,6 +1,6 @@
 # 🌃MCPenis/5meomc
 
-**INCOMING TRANSMISSION... 12 PM EST**
+**INCOMING TRANSMISSION... 12 PM EST 7/27/23** 
 
 [NEW ALBUM OUT NOW - CLICK HERE](https://open.spotify.com/album/597NOjf9W8429mIoTpQUD5?si=8CHWrJ0NTKu1759to1Jagg)
 
