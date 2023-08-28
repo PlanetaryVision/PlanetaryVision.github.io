@@ -4,7 +4,7 @@
 
 **[INCOMING TRANSMISSION...](https://www.instagram.com/p/CwEAAfQLGEc/)** 👈 **CLICK**
 
-**[NEW ALBUM OUT NOW - CLICK HERE](https://open.spotify.com/album/6O2C1YzzWFBEWc5jrOMW7S?si=-T4VsyiEQNmfgS7aVOqL0g)**
+**[NEW ALBUM OUT NOW - CLICK HERE](https://open.spotify.com/album/6O2C1YzzWFBEWc5jrOMW7S?si=-T4VsyiEQNmfgS7aVOqL0g)** 👈 **CLICK**
 
 # 🏪MERCH
 
