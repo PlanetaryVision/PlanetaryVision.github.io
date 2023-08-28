@@ -8,7 +8,7 @@
 
 # 🏪MERCH
 
-🛒**GO HERE** - [CLICK HERE](https://5meomc.printify.me/products) 
+🛒 [CLICK HERE](https://5meomc.printify.me/products)  👈 **CLICK**
 
 # 🎮GAMES
 
