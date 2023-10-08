@@ -27,6 +27,7 @@
 🐥**TWITTER** - [CLICK HERE👈](https://twitter.com/Screamtard)
 
 # 🎨GALLERY
+-------------------
 
 ![blade-runner-light-cigarette](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/1526e754-5b9d-4500-9933-3218a8bb4639)
 
