@@ -28,6 +28,8 @@
 
 # 🎨GALLERY
 
+![richtofen-kill-yourself](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/a4df18bc-2858-4770-bf24-c00f403a26dd)
+
 ![blade-runner-light-cigarette](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/1526e754-5b9d-4500-9933-3218a8bb4639)
 
 ![download (3)](https://user-images.githubusercontent.com/111039846/235381743-ad5694ed-fed1-45c8-9d5f-c6d1965fccb1.gif)
