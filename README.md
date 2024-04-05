@@ -28,7 +28,7 @@
 
 # 🎨GALLERY
  
-![CLICK ME](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/2879b304-087b-4b4e-b9b1-8ff95b9c5ad8)
+!(https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/2879b304-087b-4b4e-b9b1-8ff95b9c5ad8)
 
 ![blade-runner-light-cigarette](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/1526e754-5b9d-4500-9933-3218a8bb4639)
 
