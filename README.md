@@ -28,7 +28,7 @@
 
 # 🎨GALLERY
 
-<iframe width="1236" height="695" src="https://www.youtube.com/embed/zK1815OTQXk" title="Freezing" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+![freezing](https://www.youtube.com/embed/zK1815OTQXk) 
 
 ![richtofen-kill-yourself](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/a4df18bc-2858-4770-bf24-c00f403a26dd)
 
