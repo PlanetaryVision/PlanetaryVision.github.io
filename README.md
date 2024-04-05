@@ -28,6 +28,7 @@
 
 # 🎨GALLERY
  
+https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/2879b304-087b-4b4e-b9b1-8ff95b9c5ad8
 
 ![richtofen-kill-yourself](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/a4df18bc-2858-4770-bf24-c00f403a26dd)
 
