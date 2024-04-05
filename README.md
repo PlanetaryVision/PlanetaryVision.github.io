@@ -27,8 +27,7 @@
 🐥**TWITTER** - [CLICK HERE👈](https://twitter.com/Screamtard)
 
 # 🎨GALLERY
-
-![freezing](https://www.youtube.com/embed/zK1815OTQXk) 
+ 
 
 ![richtofen-kill-yourself](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/a4df18bc-2858-4770-bf24-c00f403a26dd)
 
