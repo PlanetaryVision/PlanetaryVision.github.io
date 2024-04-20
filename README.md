@@ -4,7 +4,7 @@
 
 **[MC PENIS: CONDO DREAM OUT NOW! ROBLOX CONDO VIDEO!](https://www.xvideos.com/video77857127/mc_penis_condo_dream)** 👈 **CLICK (NSFW) 18+**
 
-**[NEW ALBUM OUT NOW!](https://open.spotify.com/album/1RVCayn0LMIwyFSldHlbOU?si=lc7jut_aRIK65CQ803B3UA)** 👈 **CLICK**
+**[TALES FROM THE CRYPT ALBUM](https://open.spotify.com/album/1RVCayn0LMIwyFSldHlbOU?si=lc7jut_aRIK65CQ803B3UA)** 👈 **CLICK**
 
 
 # 🏪MERCH
