@@ -1,6 +1,6 @@
 # 🌃MCPenis/5meomc
 
-**[NEW! 2024 ALBUM PROMO OUT NOW!](https://www.youtube.com/watch?v=9nTqHZfb2OA&lc=Ugy_Ao1w2_yUkvq8Ox14AaABAg&ab_channel=MCPenis)** 👈 **CLICK**
+**[NEW! 2024 ALBUM PROMO OUT NOW!](https://www.youtube.com/watch?v=MxUksT8hoSg&ab_channel=MCPenis)** 👈 **CLICK**
 
 **[MC PENIS: CONDO DREAM OUT NOW! ROBLOX CONDO VIDEO!](https://www.xvideos.com/video77857127/mc_penis_condo_dream)** 👈 **CLICK (NSFW) 18+**
 
@@ -30,7 +30,7 @@
 🐥**TWITTER** - [CLICK HERE👈](https://twitter.com/Screamtard)
 
 # 🎨GALLERY
- 
+
 📷 [CLICK FOR VIDEO](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/2879b304-087b-4b4e-b9b1-8ff95b9c5ad8)
 
 ![blade-runner-light-cigarette](https://github.com/PlanetaryVision/PlanetaryVision.github.io/assets/111039846/1526e754-5b9d-4500-9933-3218a8bb4639)
