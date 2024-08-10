@@ -1,6 +1,6 @@
 # 🌃MCPenis/5meomc
 
-**[NEW! 2024 ALBUM PROMO OUT NOW!](https://www.instagram.com/p/C8xDtptR0ak/?img_index=1)** 👈 **CLICK**
+**[NEW! 2024 ALBUM PROMO OUT NOW!](https://www.youtube.com/watch?v=PWgrZvQgux8)** 👈 **CLICK**
 
 **[MC PENIS: CONDO DREAM OUT NOW! ROBLOX CONDO VIDEO!](https://www.xvideos.com/video77857127/mc_penis_condo_dream)** 👈 **CLICK (NSFW) 18+**
 
