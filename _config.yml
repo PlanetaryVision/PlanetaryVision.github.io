@@ -3,4 +3,5 @@ defaults:
       path: "_posts"
     values:
       layout: "post"
+      custom_css: "/main/styles.css" 
       custom_css: "/assets/styles.css"
