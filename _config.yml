@@ -1,3 +1,5 @@
+# config.yml
+theme: jekyll-theme-slate # (or any theme you may have been using before)
 defaults:
   - scope:
       path: "_posts"
